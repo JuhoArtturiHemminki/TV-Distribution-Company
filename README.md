@@ -1,0 +1,1 @@
+Global zero-latency network infrastructure via the Hemminki Resonance Field. Eliminating the UI/API dichotomy through physical induction. Licensing: Innovations are open for use with a 1% royalty commission and mandatory attribution to TV Distribution Company. 
